@@ -7,6 +7,7 @@
 ## 2022
 
 - On TikTok, An Account like Emoji Cat Blue was Created in 2022.
+- A TikTok Second Account named 'Gold Slimepup' `@_gold.slimepup_` and 'Tango Mangles' (Also renamed as `@_tango.mangle_` in previous says `@_gold.slimepup_`), the one first is gold slimepup, the tango mangles is a rename of gold slimepup from tiktok second account was created on 2022.
 - I have learn as a bit english but it made so bad.
 - A ChatGPT is known on 2022. I knew this Website Assistant to learn some code.
 
