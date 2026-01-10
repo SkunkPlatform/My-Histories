@@ -37,14 +37,14 @@
 - SkunkPlatform renamed DiamondPlatform on SkunkPlatform1's Roblox Profile, Now it's called: DiamondPlatform (@SkunkPlatform1). Due to Problems with Profile Search.
 
 ## 2026
-- Official Rename of SkunkPlatform as of January 15.
+- Official Rename of SkunkPlatform as of January 30. in January 30th, 2026 will be named as 'DiamondPlatform'.
 - Will launch a **SkunkService: The Developer Infinite** as of February 1.
 
 ## 2027
 - Creator Birthday's 16 Years old Celebration.
 
 ## 2028
-- The DiamondPlatform will be renamed as 'MoonPlatform' (Also known as a White Cat)
+- The DiamondPlatform will be renamed as 'MoonPlatform' (Also known as a Yellow Cat. Appearance: Yellow Kitty, Cute Face, Yellow Ear and a Kitty Tail.)
 
 ## 2035
-- As of 2035, Will no longer be available for SkunkPlatform and DiamondPlatform. The Cloudy Skunk will be available on 2036.
+- As of 2035, Will no longer be available for SkunkPlatform, MoonPlatform and DiamondPlatform. The Cloudy Skunk will be available on 2036.
