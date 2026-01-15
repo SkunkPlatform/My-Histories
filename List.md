@@ -47,4 +47,4 @@
 - The DiamondPlatform will be renamed as 'MoonPlatform' (Also known as a Yellow Cat. Appearance: Light Blue Kitty, Cute Face, Light Blue Ear and a Kitty Tail.)
 
 ## 2035
-- As of 2035, Will no longer be available for SkunkPlatform, MoonPlatform and DiamondPlatform. The 'Diamond Skunk Company' or 'Empresa Diamond Skunk' will be available on 2040.
+- As of 2035, Will no longer be available for SkunkPlatform, MoonPlatform and DiamondPlatform. The 'Diamond Kitty Company' or 'Empresa Diamond Kitty' will be available on 2040.
